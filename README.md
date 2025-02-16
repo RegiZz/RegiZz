@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Kotlin, Spring Boot and React.js<br>💬 Ask me about everything i will try to answer
+🌱 I’m currently learning more aspects of Java programming<br>💬 Ask me about everything i will try to answer
 
 
 ## 🌐 Socials:
