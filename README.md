@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Owner of ZyberSoft<br>💬 Ask me about everything i will try to answer
+⚡ Owner of ZyberSoft<br>💬 Ask me about everything i will try to answer<br>
 
 
 ## 🌐 Socials:
